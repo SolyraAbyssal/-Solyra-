@@ -8,4 +8,4 @@ I'll wait where echoes fade slowest..
       • Teen / Sensitive / Anti-Social
       • She / Her
       • Loves Space and Planets
-      • Plays Dandys world + Watch                   Solarballs
+      • Plays Dandys world + Watch                            Solarballs
