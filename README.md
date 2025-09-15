@@ -6,5 +6,7 @@ I'll wait where echoes fade slowest..
 </p>
 
             • Alt : DesiringStars
-            • Teen / Sensitive
-            • She / It / Her
+            • Teen / Sensitive / Anti-Social
+            • She / She
+            • Likes Space and Planets
+            • Dandys world Fan + Solarballs
