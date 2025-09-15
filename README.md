@@ -1,4 +1,3 @@
-
 I'll wait where echoes fade slowest.. 
 
 <p align="center">
@@ -6,5 +5,7 @@ I'll wait where echoes fade slowest..
 </p>
 
             • Alt : DesiringStars
-            • Teen / Sensitive
-            • She / It / Her
+            • Teen / Sensitive / Anti-Social
+            • She / Her
+            • Loves Space and Planets
+            • Plays Dandys world + Watch                   Solarballs
